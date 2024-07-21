@@ -69,6 +69,6 @@ We may update these Terms at any time by posting the revised version on the App.
 
 10. Contact Us
 
-If you have any questions about these Terms, please contact us at [[email address removed]].
+If you have any questions about these Terms, please contact us at innocentmuhavimaye@gmail.com.
 
 Thank you for using Connect!
