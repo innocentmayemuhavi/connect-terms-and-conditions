@@ -5,7 +5,7 @@ These terms and conditions ("Terms") outline the rules and regulations for using
 
 1. User Accounts
 
-You must be 13 years of age or older to create an account and use the App.
+You must be 3 years of age or older to create an account and use the App.
 You are responsible for maintaining the confidentiality of your account and password and for restricting access to your device. You agree to accept responsibility for all activities or actions that occur under your account or password.
 You agree to provide truthful and accurate information when creating an account.
 2. Data Collection and Use
